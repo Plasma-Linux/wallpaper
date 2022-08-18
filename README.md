@@ -1,4 +1,4 @@
 # wallpaper
 壁紙については説明書をご覧ください
 
-See instructions for wallpaper
+無断転載や加工及び営利目的での使用を固く禁ずる。
